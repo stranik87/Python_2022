@@ -1,1 +1,1 @@
-codescool
+codeschooluz
